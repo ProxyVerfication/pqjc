@@ -1,0 +1,2 @@
+[[programing/network/verfication/pqjc/attachments/b451f5087569d3d4725328aff4fbee0f_MD5.jpeg|Open: {1EB85110-8154-4544-83B7-5795A874D4A2}.png]]
+![[programing/network/verfication/pqjc/attachments/b451f5087569d3d4725328aff4fbee0f_MD5.jpeg]]
